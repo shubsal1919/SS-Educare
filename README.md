@@ -1,0 +1,2 @@
+# SS-Educare
+we a teaching institution that work in rural area of India for betterment of secondary and college students with least fees we provide quality education with new learning method PEER LEARNING ,we help them to get prepare for top entrance examination also we help primary and other secondary students to get involved in studies at the same time we even start working with student who failed in 10th and 12th examination 
